@@ -227,4 +227,4 @@ Inscryption is available as a full free version with all features and updates in
 Don't miss out on this incredible gaming experience! Click the download button now and start your journey into the chilling world of Inscryption.
 
 ---
-**Last updated:** 2026-09-26 07:28:57 UTC
+**Last updated:** 2026-09-26 12:57:47 UTC
